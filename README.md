@@ -23,7 +23,7 @@ Here, I list my technical skills, including programming languages, frameworks, l
 # Contact
 If you'd like to get in touch with me, you can reach me through the following channels:
 
-Email: hemanthgowda1223@gmail.com
+Email: hruthik.nd@gmail.com
 
 LinkedIn: [linkedin.com/in/hruthk_nd](https://www.linkedin.com/in/hruthik-nd/)
 
