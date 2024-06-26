@@ -25,6 +25,6 @@ If you'd like to get in touch with me, you can reach me through the following ch
 
 Email: hemanthgowda1223@gmail.com
 
-LinkedIn: [linkedin.com/in/hemanth1223](https://www.linkedin.com/in/hemanth1223)
+LinkedIn: [linkedin.com/in/hemanth1223](https://www.linkedin.com/in/hruthik-nd/)
 
 I'm open to networking, collaborations, and discussing exciting opportunities. Let's connect and create something awesome together!
